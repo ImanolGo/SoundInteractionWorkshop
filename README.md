@@ -7,8 +7,11 @@ We will also help to enter the field of sound synthesis and effects with the hel
 Finally, we will be able to join both concepts, sensing the analog world and responding with sound in real time.
 The approach will be practical rather than theoretical, with a strong focus on artistic expression. At the end, students will be invited to present their ideas and works in progress.
 
-DATE AND PLACE:
-First Class 5-7 May 2017 
+DATE:
+5-7 May 2017 
+
+LOCATION:
+
 Zollamt Galerie
 Zollamt Studios, 
 Frankfurter Str. 91, 
